@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rajkawale7
-- 👀 I’m interested in to learn new technology Based on IT, data science, etc
+- 👀 I’m interested in to learn new technology Based on IT service, data science, etc
 - 🌱 Currently i'm learning Coding and how to Operate the GitHub.
 - 💞️ I’m looking forward to join the organization where i can contribute my skills towards it's Goals. 
 - 📫 You can reach throughout my e-mail "Rajkawale712@gmail.com" and via. Contact Number + 91 9049331047
